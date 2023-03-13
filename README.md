@@ -12,4 +12,4 @@ Domain Experience:
 Medical-specifically in the Operating Room
 Emergency Services- Dispatching and intake calls
 Electronic Security
-Food Service- from cook to manager I've done invenrory, data enrty, oredering, kept track of labor and more.
+Food Service- from cook to manager I've done invenrory, data entry, oredering, kept track of labor and more.
